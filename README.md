@@ -1,6 +1,2 @@
-# hello thank you, send me message on whatsapp or telegram 
-# i hope you will send me on telegram! 
-# I'm waiiting you messsge
-# D'ont forget send me you name on khamassat.
-# +213792100650
+# hello thank you, send me message on telegram 
 # https://t.me/si_yas
